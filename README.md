@@ -8,3 +8,7 @@
 - [Reserve](https://i.redd.it/q53j90d37cx31.jpg)
 - [Factory](https://preview.redd.it/aq2nza9h4dc41.png?width=3869&format=png&auto=webp&s=7a3fd0c877a604bff470cafb7a47993ab757cf74)
 - [Shoreline](https://i.redd.it/qlwzubo6y0c21.jpg)
+
+## Ammo Chart
+
+[Ammo Chart](https://i.redd.it/9yhj1lqzy6541.png)
